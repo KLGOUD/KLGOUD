@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Latha Kola!
 
 🎓 B.Tech in Computer Science (Cyber Security) | 💻 Cybersecurity & Networking Enthusiast  
-📍 Based in Hyderabad, India | 📬 lathag382@gmail.com | 📱 +91 9398415276  
+📍 Based in Hyderabad, India |
 
 ---
 
